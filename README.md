@@ -4,4 +4,4 @@ Ps4
 
 https://youtu.be/XsNvHYOVUbs
 
-https://www.mediafire.com/file/h9nia14agtioqdg/Lapse-v1.2-AIO.iso/file
+https://www.mediafire.com/file/80v7gw2qxyar6sz/Lapse-v1.2-AIO-Update.iso/file
